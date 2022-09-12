@@ -1,10 +1,6 @@
-**SERVIDOR MULTIMEDIA![](images/Aspose.Words.134fb563-7b0f-43f7-afc7-95b7ceeff84f.001.png)**
+**SERVIDOR MULTIMEDIA**
 
-![](images/Aspose.Words.134fb563-7b0f-43f7-afc7-95b7ceeff84f.002.jpeg) ![](images/images/Aspose.Words.134fb563-7b0f-43f7-afc7-95b7ceeff84f.003.jpeg)
-
-![](images/Aspose.Words.134fb563-7b0f-43f7-afc7-95b7ceeff84f.004.png)
-
-**PARA PC, ANDROID, TV, ETC![](images/Aspose.Words.134fb563-7b0f-43f7-afc7-95b7ceeff84f.005.png)**
+**PARA PC, ANDROID, TV, ETC**
 
 **1.Requisitos previos**
 
